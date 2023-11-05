@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @wrk-ak
+- 👀 I’m interested in collaborating in new interesting projects. 
+- 🌱 I’m currently learning to expand my knowledge, learn more design tactics and learning to use AI effectively. 
+- 💞️ I’m looking to collaborate on interesting projects. 
+- 📫 ping me here to reach out to me. 
